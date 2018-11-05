@@ -1,1 +1,1 @@
-# A superhero a day.
+# A cocktail a day.
